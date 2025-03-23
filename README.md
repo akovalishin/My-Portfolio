@@ -5,4 +5,4 @@ As I am currently looking to transition into junior PM roles, I hope this page c
 
 Finally, I would like to take this opportunity to encourage anyone reading this to feel free to reach me via any of the following  
 email: aleks.kovalishin@gmail.com or linkedin: linkedin.com/in/kovalex/  
-I am always eager for a chat, be it work-related or otherwise. The world does not end at github.com
+I am always eager for a chat, be it work-related or otherwise. The world does not end at github.com.
