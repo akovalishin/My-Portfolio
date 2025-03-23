@@ -6,7 +6,7 @@ As I am currently looking to transition into junior PM roles, I hope this page c
 - [*Case Study: A sample project from my business development experience*](Case%20Study%20Beder.pdf)  
 - [*My CV*](Alex%20Kovalishin%20CV.pdf)  
 
-Finally, I would like to take this opportunity to encourage anyone reading this to feel free to reach me via any of the following  
+Finally, I would like to take this opportunity to encourage anyone reading this to feel free to reach me via any of the following:  
 **email:** aleks.kovalishin@gmail.com or **linkedin:** [/in/kovalex](https://www.linkedin.com/in/kovalex/)  
 
 I am always eager for a chat, be it work-related or otherwise.  
