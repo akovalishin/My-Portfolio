@@ -9,4 +9,4 @@ I hope this page can serve as evidence of my dedication, passion and commitment 
 - [*Short Film Webpage*](https://whispersmovie.framer.ai)
 
 For both work-related and other matters please don't hesitate to reach out. I'm always happy to connect!  
-**email:** aleks.kovalishin@gmail.com or **linkedin:** [@kovalex](https://www.linkedin.com/in/kovalex/)  
+**email:** aleks.kovalishin@gmail.com  **linkedin:** [@kovalex](https://www.linkedin.com/in/kovalex/)  
