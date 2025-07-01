@@ -5,7 +5,7 @@ I hope this page can serve as evidence of my dedication, passion and commitment 
 
 - [*My CV*](Alex%20Kovalishin%20CV.pdf)
 - [*Case Study: A project management experience*](Case%20Study%20Beder.pdf)  
-- [*Film Festival Application*](Olga%20Neff%20festival%20application.pdf)
+- [*Film Festival Application*](Film%20Festival%20Application.pdf)
 - [*Short Film Webpage*](https://whispersmovie.framer.ai)
 
 For both work-related and other matters please don't hesitate to reach out. I'm always happy to connect!  
