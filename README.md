@@ -8,5 +8,5 @@ I hope this page can serve as evidence of my dedication, passion and commitment 
 - [*Film Festival Application*](Olga%20Neff%20festival%20application.pdf)
 - [*Short Film Webpage*](https://whispersmovie.framer.ai)
 
-For both work-related and other matters please don't hesitate to reach out. I'm always happy to connect! /br
+For both work-related and other matters please don't hesitate to reach out. I'm always happy to connect!  
 **email:** aleks.kovalishin@gmail.com or **linkedin:** [@kovalex](https://www.linkedin.com/in/kovalex/)  
