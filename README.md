@@ -5,7 +5,7 @@ As I am currently looking to transition into junior PM roles, I hope this page c
 
 - [*Case Study: A sample project from my business development experience*](Case%20Study%20Beder.pdf)  
 - [*My CV*](Alex%20Kovalishin%20CV.pdf)
-- [*Film Festival Application*] (Olga%Neff%festival%20application.pdf)
+- [*Film Festival Application*] (Olga%20Neff%20festival%20application.pdf)
 - [*Short Film Webpage*] (https://whispersmovie.framer.ai)
 
 Finally, I would like to take this opportunity to encourage anyone reading this to reach out via any of the following:  
