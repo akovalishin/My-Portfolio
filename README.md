@@ -1,4 +1,4 @@
-# Welcome
+# Alex Kovalishin
 Thank you for visiting my GitHub page. It's aim is to showcase my diverse portfolio - from Project Management experience in traditional workspace to UI & Website creation on side projects.
 
 I hope this page can serve as evidence of my dedication, passion and commitment to continous self-improvement.
