@@ -3,7 +3,7 @@ Thank you for visiting my GitHub page. It's aim is to showcase my diverse portfo
 
 I hope this page can serve as evidence of my dedication, passion and commitment to continous self-improvement.
 
-- [*My CV*](Alex%20Kovalishin%20CV.pdf)
+- [*My CV*](Alex%20Kovalishin%20CV%201025.pdf)
 - [*Case Study: A project management experience*](Case%20Study%20Beder.pdf)  
 - [*Film Festival Application*](Film%20Festival%20Application.pdf)
 - [*Short Film Webpage*](https://whispersmovie.framer.ai)
